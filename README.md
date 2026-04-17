@@ -1,6 +1,6 @@
 # Lehumo (Humo) Manala
 
-**Founder @ Patterniaq** · AI Automation Engineer · Metallurgical Engineering Student @ TUT, Pretoria 🇿🇦
+**Founder @ PatterN-AI-Q** · AI Automation Engineer · Metallurgical Engineering Student @ TUT, Pretoria 🇿🇦
 
 ---
 
